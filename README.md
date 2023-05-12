@@ -1,3 +1,4 @@
 # DiegoAnDev.github.io
-#hallo
-#Willkommen
+# hallo
+# Willkommen
+# AMOGUS
